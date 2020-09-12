@@ -1,1 +1,2 @@
 # skbanist
+My name is Sarah Banister and I am a senior at Indiana University studying Informatics with a cognate in Business. I have been playing golf since I was a little girl and it is one of my favorite hobbies to this day. I was a member of the Indiana University club golf team my sophomore and junior year. I am currently working as a bar back at a restaurant in my hometown of Fort Wayne, Indiana. 
